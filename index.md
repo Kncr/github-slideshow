@@ -1,1 +1,0 @@
-Selam hoşgeldin
